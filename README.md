@@ -1,2 +1,0 @@
-# WIKI-ADOLESCENCIA
-Proyecto escolar
